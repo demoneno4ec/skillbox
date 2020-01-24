@@ -1,0 +1,1 @@
+[Стань хакером на Java за 3 дня](https://webinar.skillbox.ru/java/?utm_source=vk&utm_medium=cpa&utm_campaign=all_all_vk_cpa_feed_intensive-1-2020-01_ru_code_sabitov_1014211990&utm_content=ad_65409972&utm_term=Proger_sabitov5)
